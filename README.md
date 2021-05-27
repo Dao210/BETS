@@ -1,0 +1,2 @@
+# BETS
+Bet the future
